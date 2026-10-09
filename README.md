@@ -1,0 +1,2 @@
+# premium-gilding-letter-001-raised-gesso-gilding-guide
+You've watched gilding tutorials, bought expensive supplies, but your raised gesso letters still come out flat, cracked, or uneven. The problem isn't your technique—it's that no one breaks down the exact process step-by-step in one organized place.  The Raised Gesso Gilding Guide is a comprehensive Notion template that consolidates everything you n
